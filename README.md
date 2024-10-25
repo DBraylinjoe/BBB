@@ -1,2 +1,2 @@
 # BBB
-To be Glow
+Web3 developer, Investor
